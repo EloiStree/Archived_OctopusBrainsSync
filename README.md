@@ -37,6 +37,21 @@ It make the sync artificial brain less big and less complexe and the small actio
  
 ```
 
+An other piece of the puzzle.   
+I keep asking myself:
+"how could we create intelligent software if we consider it to be able to turn it on and off when we want."
+If it is that inteligent that mean that it should be useful to you.
+
+And the definition of something useful is that once you use it you can't do without it.
+
+So for me the only way I see the future of my project Open Macro Input is to become Octopus.
+An extension of your intents to live with machines as "one" but you.
+
+
+Don't expect it tomorrow. That a life time project idea.
+It is frightening, but as it is for life and kids. 
+
+
 That a 2AM thinking.  
 So it is dumb.
 
