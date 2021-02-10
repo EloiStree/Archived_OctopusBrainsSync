@@ -27,7 +27,7 @@ That a 2AM thinking.
 So it is dumb.
 
 But like a "old" saying said:  
-[![](https://idrissaberkane.org/wp-content/uploads/2016/02/idriss-mazars.png)](https://www.youtube.com/watch?v=ibIjlXSagME&ab_channel=LeCERA)
+[![Idriss Aberkane ](https://www.hagergroup.com/hagerforum/images/content/explore_the_future/idriss_aberkhane_portrait_460-460.jpg)](https://www.youtube.com/watch?v=ibIjlXSagME&ab_channel=LeCERA)
 “The most important message of my course is that any revolution goes through three stages. First it’s considered ridiculous, then dangerous, and finally self evident."  
 Idriss Aberkane  
 
